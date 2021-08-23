@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fredjoan
+- Learning to code from scratch!, Thank you all for the support!!
+- 📫 How to reach me ... fredguichardo@gmail.com
